@@ -1,3 +1,3 @@
-This project is seriously awesome, you guys!
+This project is totaly awesome, you guys!
 
-lalalal
+lalalala
